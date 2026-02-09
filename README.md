@@ -2,9 +2,9 @@
 
 Angaben gemäß § 5 TMG
 
-Noah Wilkening
-Freiburgerstr. 18 
-77933 Lahr
+Noah Wilkening,
+Freiburgerstr. 18, 
+77933 Lahr,
 Deutschland
 
 Kontakt:  
