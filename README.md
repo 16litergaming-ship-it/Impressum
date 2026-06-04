@@ -52,8 +52,6 @@ Diese Datenschutzerklärung kann angepasst werden, falls sich rechtliche oder te
 Angaben gemäß § 5 TMG
 
 Noah Wilkening, 
-Freiburgerstr. 18, 
-77933 Lahr, 
 Deutschland 
 
 Kontakt: E-Mail: 16litergaming@gmail.com
